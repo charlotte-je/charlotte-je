@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... IG:@charlotteje_fr SNAP:@seungadaily
 - 😄 Pronouns: french pronunciation charlotte 
 
-Donation: NH 3027284128021
+
