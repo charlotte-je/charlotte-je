@@ -6,8 +6,8 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m charlotte
-- 🤔 I’m looking for help with ... junior programmer
+
 - 📫 How to reach me: ... IG:@charlotteje_fr SNAP:@seungadaily
-- 😄 Pronouns: french pronunciation charlotte 
+
 
 
